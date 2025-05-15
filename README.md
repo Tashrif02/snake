@@ -1,1 +1,1 @@
-Cool Website; oficially not owned by me
+Cool Website; officially not owned by me
